@@ -1,0 +1,7 @@
+- Hi, I’m @Beatriz-Rezende-Furtado
+- I’m interested in open resorce projects
+- I’m currently learning systems analysis
+- I’m looking to collaborate on coding or machines isues
+- How to reach me e-mail: rezendebia88@gmail.com
+- How to reach me instagram: @beatriz_furtado
+- Pronouns: she/ her
